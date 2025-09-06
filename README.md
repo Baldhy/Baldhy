@@ -1,1 +1,3 @@
-This repo is only for learning
+- Not remarkable, just relentlessly curious.
+- No titles, no fame—just chasing knowledge one step at a time.
+- Ordinary mind, extraordinary hunger to grow.
