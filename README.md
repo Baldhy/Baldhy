@@ -1,3 +1,1 @@
-- Not remarkable, just relentlessly curious.
-- No titles, no fame—just chasing knowledge one step at a time.
-- Ordinary mind, extraordinary hunger to grow.
+Not remarkable, just relentlessly curious
